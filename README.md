@@ -1,1 +1,1 @@
-O curso está sendo exelente, muot bem fetio , os porfessores são execelentes, eixige dedicação, entretanto o resultado será atisfatório.
+O curso está sendo excelente, muito bem feito , os professores são execelentes, exige dedicação, entretanto o resultado será atisfatório.
