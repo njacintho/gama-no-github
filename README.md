@@ -1,0 +1,1 @@
+O curso está sendo exelente, muot bem fetio , os porfessores são execelentes, eixige dedicação, entretanto o resultado será atisfatório.
